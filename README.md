@@ -5,5 +5,3 @@ OF U WANT COURSE OR ADDTIONAL INFO THEN DM ME ON TELGRAME ID
 https://t.me/DevilNixonHackk 
 
 https://t.me/royalKingstone8832
-https://t.me/DevilNixonHackk
-https://t.me/royalKingstone8832
